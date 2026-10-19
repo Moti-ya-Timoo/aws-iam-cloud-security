@@ -4,8 +4,8 @@
 
 **Project Link:** [View Project](https://nextwork.ai/projects/51a5fd24-7458-58a6-8653-9b90119a0e4a)
 
-**Author:** mambotimothy25@gmail.com  
-**Email:** mambotimothy25@gmail.com
+
+
 
 ---
 
